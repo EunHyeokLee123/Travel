@@ -11,9 +11,11 @@
 ![수성못](<https://tour.daegu.go.kr/icms/tour/file/getImage.do;jsessionid=C4F1628CA664D153D55AAE71F1A14C21.tomcat_1?atchFileId=FILE_KOATTR_120%20%20%20%20%20&fileSn=3502>)
 
 ## 2. 김광석 다시그리기 길
+![김광석 다시그리기 길](<https://jgursc.com/simg/ur/s51/img4.jpg>)
 
 ## 3. 83타워
-
+![83 타워](<https://i.namu.wiki/i/3_tFPYyGuBXCmAY442mKzIb4h0jp7kO18ITjoXwFL1dhmJKpQXxjc5YqyRtSCYZ07Ia-q0A24UdXRrazwmsIJw.webp>)
 ## 4. 서문시장
-
+![서문시장](<https://i.namu.wiki/i/EClTE6gstl5u83iPpWLu07HxZOGq4m6ozyNDUaLx3wPcPqKhD8GgnVx9vriuHHX8L8rZcvPo234jGpHym1IyGw.webp>)
 ## 5. 앞산전망대
+![앞산전망대](<https://img1.daumcdn.net/thumb/R1280x0.fjpg/?fname=https://t1.daumcdn.net/brunch/service/user/7HHT/image/AV685IGZY_WUmzMpSscb6MwctUc.JPG>)
